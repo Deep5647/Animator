@@ -1,6 +1,19 @@
+
+
+
+
+https://github.com/Deep5647/Animator/assets/155975421/34b81a48-0983-461e-ba96-4edf54d5f970
+
+
 # animator
 
+
 A new Flutter project.
+
+
+
+
+
 
 ## Getting Started
 
