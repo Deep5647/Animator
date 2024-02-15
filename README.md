@@ -1,4 +1,15 @@
+![a1-min](https://github.com/Deep5647/Animator/assets/155975421/1cf3cced-8a7c-4538-a602-e851e4ab52e9)
 
+![a2](https://github.com/Deep5647/Animator/assets/155975421/444c90dc-b2a8-4d61-9e00-dc3045f1aebd)
+
+
+![a3](https://github.com/Deep5647/Animator/assets/155975421/ba961123-c2e1-4dcc-abb9-fbf02e4a0574)
+
+![a4](https://github.com/Deep5647/Animator/assets/155975421/9e5bce0f-d800-4c25-84a5-8612133c2e37)
+
+![a5](https://github.com/Deep5647/Animator/assets/155975421/ea69108e-0627-400f-8fe9-8ccf55e7e3ab)
+
+![a6](https://github.com/Deep5647/Animator/assets/155975421/302e1210-a387-4b34-b697-681fdebfe19f)
 
 
 
